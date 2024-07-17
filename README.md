@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @420akhil
-- 👀 I’m interested in sditing and designing
+- 👀 I’m interested in editing and designing
 - 🌱 I’m currently learning davinci resolve
 - 💞️ I’m looking to collaborate on learning editing and designing
 
